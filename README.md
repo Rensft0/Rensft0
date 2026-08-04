@@ -1,7 +1,8 @@
 ## Hi Im Mclaren
 
-🌵 Computer Science Student in<br/>
-🎍 I create website for fun<br/>
+🌵 Computer Science Student in STI Global City<br/>
+🎍 I create websites for fun<br/>
+🌳 An aspiring computer science student to become the best version of myself<br>
 
 
 
